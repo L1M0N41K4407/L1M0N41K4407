@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
 - 😄 Pronouns: Self-confident boi
-- ⚡ Fun fact: I am 13 y.o. boy, but I study as 10th student at school
+- ⚡ Fun fact: I am 13 y.o. boy, but I study as 10th grade student at school
 
 <!---
 L1M0N41K4407/L1M0N41K4407 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
